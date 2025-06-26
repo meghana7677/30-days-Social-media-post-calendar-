@@ -1,1 +1,13 @@
-# 30-days-Social-media-post-calendar-
+# DIGITAL MARKETING 
+
+**COMPANY**:CODTECH IT SOLUTIONS 
+
+**NAME** : M.Shanmukhi Sri Meghana
+
+**INTERN ID**:CTO6DN1346
+
+**DOMAIN**: DIGITAL MARKETING 
+
+**DURATION**:6 WEEKS
+
+**MENTOR**:NEELA SANTOSH
